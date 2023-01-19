@@ -1,1 +1,0 @@
-# sofian-rivaldy.github.io
